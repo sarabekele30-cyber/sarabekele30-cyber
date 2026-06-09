@@ -35,4 +35,4 @@ A former business owner and operational manager transitioning my skills into sof
 
 ---
 
-📫 **How to reach me:** [Connect with me on LinkedIn](PASTE_YOUR_LINKEDIN_URL_HERE)
+📫 **How to reach me:** [Connect with me on LinkedIn] www.linkedin.com/in/serkalem-bekele-13a516407
